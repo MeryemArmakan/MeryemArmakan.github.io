@@ -10,3 +10,8 @@ Levi Ackermann (リヴァイ・アッカーマン Rivai Akkāman?) ist nach Hanj
 - bewegt sich in einem Tempo, das schier übermenschlich scheint
 
 Groesse: 1,60m
+
+### Zitate
+
+- If you don't want to die - think!
+- The lesson you need to learn right now can't be taught with words, only with action.
