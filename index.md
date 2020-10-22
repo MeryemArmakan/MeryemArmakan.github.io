@@ -15,3 +15,7 @@ Groesse: 1,60m
 
 - If you don't want to die - think!
 - The lesson you need to learn right now can't be taught with words, only with action.
+
+
+<img src="https://besthqwallpapers.com/Uploads/8-9-2018/65146/thumb2-levi-ackerman-sword-attack-on-titan-manga-shingeki-no-kyojin.jpg">
+
